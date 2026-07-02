@@ -1,0 +1,5 @@
+Miro
+https://miro.com/welcomeonboard/WFZOZUkyeTNJWHhpYlVadjdYaXFIcjFBZ1N4T1ZzU0Y0c1RoTGpUVDNKS1ZmM2pxNHlWOVNkWnhrZDhUZFJKQzR6YlhNR0FTOTQzdjBRT3FJZjdLck9vL1d2bHRKa0FOS0FBbWljbzMrdHdGQlI4bjFNbEs5NjBQSUg5L0hWcmRyVmtkMG5hNDA3dVlncnBvRVB2ZXBnPT0hdjE=?share_link_id=482091903891
+
+Database
+https://docs.google.com/document/d/1Y1bPD_PhPrcQk2D_5iWDYicydqGSk64GkITJUOmEq0s/edit?tab=t.0
